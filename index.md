@@ -1,1 +1,3 @@
 # Hermine Granger
+
+Hermine Jean Granger ist die beste Freundin von Harry Potter. Ihre Eltern sind Muggels, die Zahnärzte Mr. und Mrs. Granger. Mit elf Jahren erfuhr Hermine, dass sie eine Hexe ist und an der Hogwartsschule für Hexerei und Zauberei aufgenommen wurde. Dort wohnt sie in Gryffindor zusammen mit Harry Potter und Ron Weasley, mit denen sie eng befreundet ist. Sie ist überaus talentiert und hilft ihren Freunden bei vielen Aufgaben.
