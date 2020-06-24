@@ -13,3 +13,6 @@ Hermine Jean Granger ist die beste Freundin von Harry Potter. Ihre Eltern sind M
 > if the only basis for believing in it is 
 > that nobody's proved it doesn't exist!
 Hermine in Harry Potter und der Orden des Phönix
+
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/3/34/Hermione_Granger.jpg/289px-Hermione_Granger.jpg">
